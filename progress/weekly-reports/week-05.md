@@ -3,27 +3,26 @@ date: 5/12//25
 ---
 
 ✅ What I worked this week: nothing
-✅ What I learned: notihng
-✅ next week's priority: N/A
+✅ What I learned: Gemini 3 is nice
+✅ next week's priority: no extra screen time
 
 **Did I hit my goals?** No
 **What was the productivity rating** : 1/10
 **What worked well this week?** : no motivation
-**What blocked me?** : everything
-**What improvement can I make** : idk
-**Next week's ONE big goal?** : brrrr
+**What blocked me?** : didn't try any much
+**What improvement can I make** : try daily and only then get entertainment
+**Next week's ONE big goal?** : no extra internet and try daily 5 mins
 **Did I post about my learning?** : nothing
 
-**Minimum Weekly Success Criteria**: N/A
+**Minimum Weekly Success Criteria**: no internet
 
 - Coded 5+ days : N/A
 - Total hours spent : N/A
 - Made progress on current project : N/A
 - Learned something new : N/A
-- (After Month 4) Sent applications : N/A
 
 # About the week :
 
-N/A
+Didnt even tried and much
 
 ❌🔃✅
